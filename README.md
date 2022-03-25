@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ishaancode12 or just Ishaan
+- 🌱 I’m currently a 14 year old Fullstack Web Developer. But dont get fooled by my age gradually I will be posting some of my personal projects to show how good I am this kinda stuff.
+- 📫 You can reach me at or 91+ 7483121968.
